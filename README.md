@@ -2,4 +2,4 @@
 
 Fellow | Communauté ✨
 
-https://discord.gg/egEU7CXfnm
+https://discord.gg/zcvR7sKvCR
